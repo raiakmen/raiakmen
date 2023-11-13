@@ -8,6 +8,6 @@ meu nome é Henrique Veiga
 
 ### Você entra em contato comigo
 
-@veigah87@gmail.com
+veigah87@gmail.com
 
 ![](https://static.wixstatic.com/media/1b6d28_5a73fb0d7f2949d187174535bf58870d~mv2.gif)
