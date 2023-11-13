@@ -12,4 +12,3 @@ meu nome é Henrique Veiga
 
 @Henrique
 
-![]https(https://media.tenor.com/i7IITDaTPtuAAAAC/naruto.gif)
